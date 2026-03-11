@@ -4,7 +4,7 @@
 
 ![GIF](https://cdn.jsdelivr.net/gh/kanonto/resources@main/image/shigure-gif/Heart_3.gif)
 
-**Where Flowers Bloom and Music Flows** 🎵🐰
+**(=^･ω･^=)** 🎵🐰
 
 ---
 
